@@ -1,3 +1,1 @@
-# ...whysoserious
-# ...damnshawty
-# ...youpieceofshi
+# ...whysoserioussss
